@@ -41,4 +41,4 @@ Headset : https://tokopedia.link/KSxhKVG0eIb Rp.1,900,000
 
 Monitor : https://shope.ee/4AchWpE2Uu Rp.2,700,000 
 
-Total : Rp.170,000,000±
+Total : Rp.200,000,000 ±
