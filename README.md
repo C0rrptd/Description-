@@ -1,4 +1,3 @@
-DESKRIPSINYA
 Kalau tidak bisa donasi, min share ke mana saja
 GPU : https://www.ebay.com.au/itm/126293879503?chn=ps&_ul=AU&mkevt=1&mkcid=28&srsltid=AfmBOorH5couWJG7_VOT4iAI2j4wwR9-Ujvgt1WIXxLrCDdUyBMJG-fGuFc Rp.100,000,000 
 Mobo : https://www.ebay.com/itm/395089958194?chn=ps&mkevt=1&mkcid=28&srsltid=AfmBOooiPdTNAEGB9Z1QM3tlkNNR9y709XXpUee8FPeCwCR8qO_y3LlDi_4 Rp 27,000,000 
